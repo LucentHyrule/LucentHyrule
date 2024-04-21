@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @LucentHyrule
+- 👀 I’m interested in snowboarding, anime, video games and long hikes in the mountains
+- 🌱 I’m currently learning the very basics of web design
+- 💞️ I’m looking to collaborate on nothing, currently. I have so much to learn before i start any collaboration projects
+- 📫 How to reach me ... email me at coryshevlin@yahoo.com use my GitHub username in the headline to get my attention
